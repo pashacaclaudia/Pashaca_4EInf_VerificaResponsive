@@ -1,0 +1,1 @@
+# Pashaca_4EInf_VerificaResponsive
